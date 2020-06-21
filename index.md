@@ -7,3 +7,5 @@ Mario is a fictional character in the Mario video game franchise, owned by Ninte
 * Lovable
 * Good jumper
 	*Helps to beat Bowser!
+> M-m-m-m-m-
+> ario!
